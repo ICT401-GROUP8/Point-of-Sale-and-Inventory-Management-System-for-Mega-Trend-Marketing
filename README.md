@@ -1,0 +1,1 @@
+# Point-of-Sale-and-Inventory-Management-System-for-Mega-Trend-Marketing
